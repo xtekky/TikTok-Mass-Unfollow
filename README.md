@@ -1,2 +1,1 @@
-# TikTok-Mass-Unfollow
-TikTok Mass Unfollow/cleaning script 
+patched, dm to buy an unpatched version
